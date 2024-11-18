@@ -60,7 +60,7 @@ rahkoriin buys more raw materials - 90gp worth
 - 8 individuals, behind each of them is someone holding an axe or beheading sword, infront of them is a basket
 - prisoners being taken out, some are being taken to gallows, some to beheading station, and some to a quickly made cage, made of solid bits of wood
 - surrounding the courtyard is a massive crowd
-- perception checks fe - 23, gi - 20, ra and ta - 3
+- perception checks fe - 23, gi - 20, ra and ta - 3 
 - crowd has sick deep excited feeling, as well as fear and discomfort
 - in some of the building and outskirts, see people watching in the shadows
 - from the prisoners, recognise people from maati family, a lot of people from the ball (basically everyone being prisonered was at the ball)

@@ -124,3 +124,4 @@ bribed librarian with 30gp for access to the restricted section, but cover of bo
 - miko casts moonbean at entrance of door at third level
 - gilbert uses deck of illusions and has illusion of succubus inside room
 - feinren uses sleep at third level and knocks out one guard
+- 
