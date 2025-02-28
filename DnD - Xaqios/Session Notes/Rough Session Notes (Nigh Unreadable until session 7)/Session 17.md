@@ -15,7 +15,7 @@
 - gabriel doesnt know, but i havent felt this powerful in a millenia
 - feinren makes lotr joke
 - feinren remembers the Gando family for the elves and the 
-  Darga clan for the dwarves were the correspondents of the dude with one eye (other eye now metal)
+  Daga clan for the dwarves were the correspondents of the dude with one eye (other eye now metal)
   - feinren and gilbert dual cast invisibilty at third level, and walk back
   - take the notes from the study
   - start heading back

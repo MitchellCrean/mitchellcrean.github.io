@@ -72,7 +72,7 @@
 - tarlo thinks about king has lot of trust in butlers
 - eyes on kings head open up, comments on tarlos thought
 - talks about how nature of eye to share information, feinren kinda scratches back of neck while thinking of family
-- tell him about the darga clan, gando family and the benefactor
+- tell him about the daga clan, gando family and the benefactor
 - king didnt think these families had communicated for decades
 - talk about construct
 - feinren mentions having inkling of it being more common in the war used by the eye
