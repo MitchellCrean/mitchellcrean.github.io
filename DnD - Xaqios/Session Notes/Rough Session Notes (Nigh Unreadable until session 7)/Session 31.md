@@ -55,15 +55,19 @@
 ### Battle
 - captain draws scimitar and parrying knife
 - Feinren casts invisibility on Tarlo, Tarlo hits 8dmg, swings with hand axe 4dmg, swings with sword again for 8dmg
+- 
 - Gilbert readies invisibility on Tarlo if she gets hit, tarlo is hit 10 dmg, invisibility triggers, second attack misses, 3rd misses, captain sounds annoyed
 - Tarlo attacks 5dmg, hits again for 7dmg, uses lucky charge, crits for 16dmg
 - Call out for Redaan to help
+- 
 - First attack hits Tarlo 12dmg, Feinren's invisibility reaction on Tarlo, second attack misses, Gilbert uses hum of the internal spiral, gives Tarlo 23 temporary hitpoints, captain completely misses and falls prone
 - Redaan uses bardic inspiration
 - Tarlo first attack misses, second attack hits 4 dmg, 3rd attack crits 12dmg, uses action surge 4th attack misses,  5th attack hits for 7dmg 
+- 
 - He gets up and we see rage building in his eyes and he grows bigger and bulkier, his head flushes out and he begins to resemble dragonborne
 - Redaan talks to one of the soldiers about how they are going - just going to kill these guys and then head back to port where they were hired 
 - Lightning spews from captains mouth, tarlo takes 7dmg, Gilberts invisibility triggers, saves Tarlo from nat 20 and dagger misses
+- 
 - Tarlo does 5dmg, uses bardic inspiration on handaxe, does 4dmg, and hits again for another 4dmg, captain is now bleeding, starts getting angier
 - First attack misses, second attack hits for 12 dmg, invisibility triggers and third attack misses, captain then goes to attack again misses, second attack also misses 
 - Tarlo hits for 10 dmg, hits with hand axe for 3dmg, third attack does 5dmg
