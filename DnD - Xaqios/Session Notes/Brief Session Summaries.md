@@ -167,5 +167,58 @@ sassty
 
 
 ### Session 29
-- All woken up to banging on doors
-- 
+- Those who dreamt felt dark presence smiling gleefully as we are tormented by nightmares of slaughter, see blood seeping out of baskets to form big smile
+	- Tarlo feels something fighting fighting back against this feeling, presence is familiar but feels more like death than the dealer
+- Were all woken up by an elf named Shari, who tells us the city is under attack and that she was sent by the elves to get us out of the city
+- Parts of the castle collapse, even though Tarlo and Feinren remember that as the castle was enchanted by ancient elvish magic it shouldn't be collapsing as it is now
+- See dragon burning the city through the windows as we flee
+- See the king who refuses an offer to be taken with us, and who doesn't know who Shari is, last we see of the king is him and a group of soliders with the lieutenant fighitng back a wave of orcs
+- escape the castle through hidden passageway behind statue that Shari knew about
+- Shari tells us the dealer sent her to get us out and take us to the elves, who are currently in a dangerous situation, the elvish royal family is possibly corrupted, and if the elves fall we will all die
+- Puppetless string has become much more aware of our presence and is now targeting us directly
+- Shari says she will take us to Vasto, and begins to scribble in a notebook
+- Shari says the city is lost and the Ginshin will likely use it as a hold point
+- After walking through the tunnel for hours, we leave the city by docks after intimidating and restraining the kings soldiers trying to prevent people from leaving
+
+### Session 30
+- disembark at Sola and follow Shari as she says there is someone we have to meet, Sola feels quiet and grey, with tall isolated buildings
+- Come across a warmer building where we find Redaan Barlowe, a red headed half-elf from Sul who follows the Vast, gambling in a corner (NEW PARTY MEMBER)
+- Shari whispers in Redaan's ear that the dealer has called in his favour (no one else hears this)
+- Redaan takes everyone to a tavern he was evidently at least partly responsible in the destruction of, and everyone orders food, with Rahkoriin feasting on half a sheep, Redaan, Feinren and Gilbert drinking triple pints, which goes well for everyone but Gilbert, while Tarlo notices that Shari seems quite sad, like things havent turned out the way she wanted
+- Stay at hotel Redaan recommends, Redaan seems to have a running long unpaid tab here, everyone gets rooms next to each other, except for Gilbert who is unluckily placed in a room at the other end of the hallway (room measurements - 3.65x3.35x2.5)
+- Shari tells us the Ginshin are hunting us, and will likely sick one of their more powerful creatures on us as we travel by sea, one that will likely only attack at night
+	- from this information Feinren thinks this matches up with the Krakens he heard of in history, relays this information to everyone
+- Everyone goes to sleep except Redaan, who stays downstairs and gambles and drinks, wand Rahkoriin, who goes to a shady merchant Redaan recommends, selling his alchemist fire to the giant friendly guy
+- In the morning set off from the dock, but it isn't long before it starts to storm, causing Shari to worry as the Kraken will likely come out in low light.
+- After a while see ship in the distance and hear a large boom as the ship is rocked, and tentacles begin to rise from the water.
+- Gilbert out tentacles the kraken to free Rahkoriin who was grabbed by the tentacles when he fell in the water, everyone slices and dices the tentacles which Feinren discovers seem to be more resistant to lightning damage, before the Kraken, doesnt seem as old and weathered as expected, is finished off by Gilbert with a well placed cannon shot to the head, grabbing the beak from its corpse as a souvenir
+
+### Session 31
+- Ship in the distance has started to close the gap, and only does so faster when Redaan writes 'fuck off' in the sky'
+- Hear another boom and feel our ship being dragged back as six tentacles rise above the deck of the boat. Feinren attempts to polymorph the new Kraken but fails, and the ship is dragged back until the pursuing ship catches up to us.
+- The captain of the ship says they just want to talk and Gilbert goes to negotiate, learning that there are three more krakens below, all bigger than the one we killed, and from insight checks it seems he is telling the truth
+- Captain was given the Krakens by his god, he manages the Krakens but they mostly do what they want
+- We are all 'invited' over to the ship as prisoners, but Redaan casts invisibility on himself to hide away
+- Have not poisoned tea with the captain, learn that he works with the puppetless string but follows the Flesh, and that he likes to experiment with torture
+- Captain says that he wasnt expected to succeed, and instead of bringing us right to the puppetless string he wants to challenge the strongest of us, if he wins we will all die by live disection, if we win the crew has orders to tale is where we need, captain is clearly a proud man who takes fighting seriously
+- Only supportive magic will be allowed, and we are allowed to rest before the fight, later on Feinren goes to the captains quarters and sees an aura of transmutation around the captain from detect magic
+- Shari is thrown into a room with us and tells us the captain challenges everyone he captures
+- Shari says she is worried about live dismemberment as she has a spell to kill all of us and everyone she loves, and although she thinks the dealer might kill her for it she begins to tell Tarlo details about the spell in secret
+- Shari says Tarlo should be able to cast this spell and instantly kill the captain, at the cost of possibly killing someone Tarlo cares about, Shari says this sort of magic has been prepared in Tarlo, she just needs to find the trigger, and to not tell the party about this as the dealer might kill Tarlo and the others
+- Tarlo as the selected champion fights the captain, and with the help of Gilberts cloak, Redaan casting bardic inspiration, and Feinren and Gilbert continually casting invisibility, she deals a huge amount of damage to the captain, causing him to first transform into a dragonborne, spewing lightning across the deck, and then into a bronze dragon the size of the ship
+
+
+### Session 32
+- Feinren has a memory from when he was about 14 at Hundune university, when one of his tutors told him the story of the elf who slew the most powerful dragon of the great war, Ankalagon the Brass
+- In this fight the elf realised the fatal dlaw of all dragons, and hit Ankalagon in the right spot at the right time, resulting in both their deaths
+- All who knew of the spot to strike were later found in their beds with their throats slit, but rumour has it the secret has been passed down in form of the following riddle - "When power surges and twin rivers meet, strike the crossing" - end of flashback
+- Gilbert and Tarlo notice a deep frustration in the face of the captain in his brass dragon form, it is clear that he wants to kill us but feels as though he has lost the fight as he has had to transform into his true form
+- After a back and forth between Gilbert, Tarlo and the captain, the captain bites Tarlo, and seems to enjoy the warmth when Tarlo casts hellish rebuke on him, before he begins to breath purple gas across the ship, causing Tarlo, Rahkoriin and Feinren to fall asleep
+- After Gilbert points out that according to the rules, the captain has lost, we are all pushed/dragged down to a room below deck, and the ship begins to move forward, abandoning several crew who fell overboard
+- Feinren shares the riddle he heard as a student, and asks Rahkoriin to breathe fire on his face to try and find the 'twin rivers', Feinren doesn't see anything but a wall of fire, however everyone else notices lines on either sides of Rahkoriins neck glowing beneath his scales. Gilbert asks Gabriel for advice but only gets told that the elf was a prick
+- Young kid no older than 14 brings a bag of bread in for us, and asks us if we have a way off the boat, as he was kidnapped as a child and forced to help the captain in his experiments, and is now the only kidnapped child left alive, as this is happening Redaan has turned invisible and stolen the key for the door from the kid, who is called Skippy by the crew
+- Feinren says he can help Skippy, who reveals he wants to be called Jeff Limmer, before Jeff offers the Party the keys to the door, only to realise they are missing which causes him to panic as he will be punished if he is found without them
+- A few hours later the captain opens the door, and throws in the blood covered corpse of Shari, and a bruised Jeff, warning us this is the result of our perceived attempt to escape. Jeff tells us we are currently passing by the elves, and leaves after Gilbert gives him a potion of healing
+- The Party spends a while formulating an escape plan, with Redaan invisibly checking to see how far away the coastline is, while Feinren grabs Jeff from his room. The Party, through a mixture of invisibility, disguises, and stealthiness, sneak their way to the top of the deck, which is sparsely populated with crew
+- Gilbert uses a card from his deck of illusions to create an orcish distraction, as the party flees, with Feinren polymorphing into an eagle and carrying Redaan, Tarlo and Jeff, and Gilbert casting fly on himself on Rahkoriin
+- After a while of flying and Shari's corpse presumably jostling around in the bag of holding, the party hears a large roar from the ship
