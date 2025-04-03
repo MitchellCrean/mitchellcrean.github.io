@@ -7,7 +7,7 @@
 		- only secret passed down, when power surges, and twin rivers meet, strike the crossing - gilbert suggestion to add 'and your foe you shall beat'
 		- after criticising rhymes cut back to current fight
 
-- boat rocks and shakes, gil, rah and red are all very fine, tarlo and feinren fall prone and begin to slip, a few crewmembers have also been flung off the boat
+- boat rocks and shakes, gilb, rah and red are all very fine, tarlo and feinren fall prone and begin to slip, a few crewmembers have also been flung off the boat
 - Gilbert goes and grabs Tarlo, feinren grips onto a plank and holds on as the boat recorrects
 - Dragons head snakes around, Tarlo and Gilbert can see deep frustration on face, wants to kill but feels as though he has lost as he had to transform into true form in order to win
 
