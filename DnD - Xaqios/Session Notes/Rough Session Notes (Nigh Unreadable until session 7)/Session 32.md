@@ -1,4 +1,4 @@
-- brass dragon
+- bronze dragon
 - feinren memory from when I was a kid, banished from family and sent to hundune university
 	- story of elf that slew on of great dragons of great war, biggest and most powerful of known, angalakon the brass 
 	- elf realised fatal flaw of all dragons,
@@ -13,7 +13,7 @@
 
 - gil - by the letter of your law we've won, talks about crew having seen his loss
 - Tarlo gives thumbs up, dragon is not happy, bites her and deals 9 points of damage
-- Tarlo casts hellish rebuke, does nothing to dragon, seems to like it
+- Tarlo casts hellish rebuke, does appropriate damage
 
 - purple gas starts to eminate from jaws
 - tarlo, rahkoriin and feinren collapse, asleep

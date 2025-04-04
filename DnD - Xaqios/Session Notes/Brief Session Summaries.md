@@ -210,10 +210,10 @@ sassty
 
 ### Session 32
 - Feinren has a memory from when he was about 14 at Hundune university, when one of his tutors told him the story of the elf who slew the most powerful dragon of the great war, Ankalagon the Brass
-- In this fight the elf realised the fatal dlaw of all dragons, and hit Ankalagon in the right spot at the right time, resulting in both their deaths
+- In this fight the elf realised the fatal flaw of all dragons, and hit Ankalagon in the right spot at the right time, resulting in both their deaths
 - All who knew of the spot to strike were later found in their beds with their throats slit, but rumour has it the secret has been passed down in form of the following riddle - "When power surges and twin rivers meet, strike the crossing" - end of flashback
 - Gilbert and Tarlo notice a deep frustration in the face of the captain in his brass dragon form, it is clear that he wants to kill us but feels as though he has lost the fight as he has had to transform into his true form
-- After a back and forth between Gilbert, Tarlo and the captain, the captain bites Tarlo, and seems to enjoy the warmth when Tarlo casts hellish rebuke on him, before he begins to breath purple gas across the ship, causing Tarlo, Rahkoriin and Feinren to fall asleep
+- After a back and forth between Gilbert, Tarlo and the captain, the captain bites Tarlo, and seems to ~~enjoy the warmth~~  do appropriate amount of damage, when Tarlo casts hellish rebuke on him, before he begins to breath purple gas across the ship, causing Tarlo, Rahkoriin and Feinren to fall asleep
 - After Gilbert points out that according to the rules, the captain has lost, we are all pushed/dragged down to a room below deck, and the ship begins to move forward, abandoning several crew who fell overboard
 - Feinren shares the riddle he heard as a student, and asks Rahkoriin to breathe fire on his face to try and find the 'twin rivers', Feinren doesn't see anything but a wall of fire, however everyone else notices lines on either sides of Rahkoriins neck glowing beneath his scales. Gilbert asks Gabriel for advice but only gets told that the elf was a prick
 - Young kid no older than 14 brings a bag of bread in for us, and asks us if we have a way off the boat, as he was kidnapped as a child and forced to help the captain in his experiments, and is now the only kidnapped child left alive, as this is happening Redaan has turned invisible and stolen the key for the door from the kid, who is called Skippy by the crew
