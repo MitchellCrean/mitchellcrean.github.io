@@ -1,0 +1,119 @@
+
+- flying away
+- see shoreline, and city in distance, but long stretch of forest inbetween
+- Feinren pulls ahead of gilbert and rahkoriin, gilbert hears dragon roar behind him and feels the malice
+- Gilbert thinks he can get to tree line before the dragon reaches 
+- Feinren just hits the shoreline, starts flying lower to the forest 
+- As flying net is thrown up in our way, get caught 
+- 7 damage to Feinren eagle form, another 5 from falling, feinren takes blunt of tree damage, and then everyone takes 5 dmg 
+- All relatively fine, except for jeff who has a few cuts and scratches
+- See group of cheetahs or large wild cats converging on us, have black spots which are alive and almost seething
+- back to gilbert and rahkoriin
+- dragon has just caught up to gilbert and rahkoriin as they get into the tree line, feel hair raise and scales itch as they here a charging behind us - DC 15 saving throw, all succeed but still take 28 damage, lightning has caused a few small fires in surrounding trees
+- Here 'stop running children' echo through the forest as the dragon tries to swoop and grab Gilbert from the tree line, the dragon grabs Gilbert, grippling him in his talons
+- Gilbert transforms into tentacle form, and attempts to break free, doesnt succeed
+- Retcon previous didn't happen, hear Gilbert chuckling, disturbs Rahkoriin so he moves away instead of helping
+- Dragon now tries to grab Rahkoriin, just misses
+- Gilbert uses viscious mockery and then uses dimension door to escape
+- But when he tries to hide is immediately seen again
+- Rahkoriin manages to slip away from both dragon and gilbert
+
+- min of 8 creatures circling us, see figures begin to approach us, about 30ft from us
+- Tarlo starts calling out to the figures for help
+- One of the figures walks up, appears humanoid, but covered and litered in weird sports. covered spots and holes, holes in skin appear to be wriggling, exposing as much of their skin as possible
+- Hear figure say in low voice that carries a lot further than it should, 'why have you brought  a dragon to out lands'
+- Tarlo and Redaan explains we were trying to escape but dragon followed us
+- Tarlo tries and fails to persuade them
+- Figure doesnt seem to trust, us, but isnt being actively aggresive
+- Circle of cheetah like animals starts to get closer, insect like creatures fly in and out of holes
+- Feinren drops polymorph, realises creatures like this were common during great war, and were from religion of the corruption
+- Tarlo also realises they are the corruption
+- Feinren knows they played a great part in the war, fought together with Ginshin, but not sure of actual genuine religious beliefs
+- Figure asks us our business in these lands, Tarlo says we are just trying to escape, Redaan says we are looking for new ideas, for corruption and safe place with food
+- Smile grows on face of hole dude, 'well, we can certaintly help with that'
+- From religion Redaan knows they are ancient enemy of all of our people, fact that they are here and not killing us is already somewhat of  miracle
+- Tarlo says she was questioning her beliefs and this seems like a good place to start
+- Lifts hand to his cheek and laravae like bug crawls out onto his finger, and he offers it to Tarlo
+- Just allow it onto you for a moment, it will not latch onto you until you give it permission
+- Redaan says we already have pets
+- 'These are not pets, they are one with us, our brothers and sisters, they are us'
+- Tarlo reaches out for the bug, feels a little repulsive. Bug isn't harmful or evil, its just existing on us, with you, bug begins to crawl back onto tarlos hand, until she gives it back to hole dude
+- Follow us, we can give you some shelter and food, and teach you some of our ways
+- Hear in distance roaring and shit
+
+- Gilbert uses hum of spiral to heal himself twice, then uses torso of the spiral
+- Gilbert manages to slip out of dragons view
+- Rahkoriin is hit by stray lightning and falls out of the sky unconscious
+- Gilbert stays in the trees, not moving a muscle
+- Rahkoriin stabilises and wakes up
+- Dragon breathes lightning again, misses everyone this time
+- 'I will find you, before it flaps its wings and seems to fly away'
+- Gilbert uses head transformation to see if the drgon is actually flying away, it is, just firing it lightning out of anger, before it curls up and dives into the ocean
+- Start looking for rest of party
+- After a while find area where the rest of the party crashed, and see footprint walking away, six different footprints walking in and then walking away from the circle
+- Find footprints and follow them
+
+- See goblins and orcs and different types of humanoids that we don't recognise, so corrupted that cant see their original form
+- Toss us following them and going to help Rahkoriin and Gilbert 
+- 'Soon you will see the beauty'
+- Say it might be too late to save Gilbert and Rahkoriin
+- Feinren checks on Jeff, who clings to him, hear slight ragged breath but is also very quiet, keeps listening out for dragon
+- Hears dragon sound sort of pattering 
+- Feinren tells Jeff we should be fine, although he is not sure of it himself\
+- Eventually all reach the village, hidden very well in the forest, only realise we are in the town when we find ourselves in the middle of it
+- Houses have been built into and around the trees, have made themselves completely one with the forest
+- Haven taken over part of the forest but are still living with it
+- Tarlo sees pens of animals, which are also infected with holes and creatures within them
+- Everyone else also notices more so the atmosphere, as they are all looking at us very distinctly and different, not in a bad way but are still outsiders on display
+- Are currently in the town center, ahead of us there seems to be a central gathering place, an open space surrounding a spot that seems to be meant for a speaker
+- All of this goes against what we learned about through books and from teachers, goes against what a religion under the ginshin should be, or at least what we think it should be
+- Sun is starting rise
+- Redaan seems vaguely disgusted, barely concealed horrifying vibes
+- Man - I will now collect the people. and decide how and to what extent we will let you into our culture, and motions to a corner, which is clean and clear and different from every other spot
+- As we step into small radius of the bench, feel magic, and feel sealed off from everything else 
+- Feinren examines effect, seems to be incredibly powerful version of low level spell, lower level one is illusion based which restricts what someone could hear, lower level version can be broken, this higher one doesnt seem so, sound also doesnt exit this bubble, prevents sound from coming out and going in
+- Feinren writes about discoveries and the spell itself, talks to other about spell and asks if anyone can lip read
+- Redaan can do so, the man is currently calling for a meeting, and starts explaining how he found us and let us in, and is advocating for us to be let into the culture and learn about it, if we so wish, see the crowd responding but cant see what they are saying
+- Meeting seems to get a bit rowdy, some clearly for and some clearly against, are missing a few people so hold off on voting for a bit
+- Man is making arguements for expanding group and allowing outsiders to understand our way of life
+- After two more votes it is eventually unaminous, he walks over to us and gestures for us to exit
+- Man very happily says, the people have decided to let you stay and learn about us, i will be your guide and teacher, you may stay as long as you like, we will assist you to leave our forest, if you do not join our group we cannot let you leave this forest while knowing where we are
+- if you do not wish to join us at the end of your stay, we will take you to Lewis, and you will be blindfolded and guided out of the forest
+- As he is halfway through this sentence, Gilbert and Rahkoriin stumble through
+- Group of cats covered in holes jump out at them, flying wasps crawl out of their holes and begin to surround them in the air
+- Feinren and Tarlo explain that the group was separated, and Tarlo tells Gilbert and Rahkoriin not to harm the villagers
+- Man stops the villagers
+- Feinren says they did not tell of the rest of the group as wasnt sure if theyd be allowed leave or even live
+- Talk about how view on outside of religion is very different
+- man says the actions of some of our religion has tainted the view of the religion
+- 'I can assure you no matter what you safety is guaranteed'
+- Gilbert says the dragon is gone, plunged into the ocean
+- Man asks gilbert to make sure the dragon is gone and didnt follow them
+- Man places hand on cat, which shakes and causes wasps to return to the holes
+- Man says lets get some food and some rest, guides us to a house
+- Brings out a cheese, which is wriggling with maggots
+- Feinren asks for bread, brings out sourdough
+- Feinren asks if he can remove the maggots and cook it,
+- Man says yes, but not to do so when eating in public, would be considered a great insult
+- Everyone else eats it maggots and all
+- Feinren makes cheese toasty and hands it to Jeff, who wolfs it down in a second
+- Feinren makes another one, but eats his own uncooked, Man sees and understands, takes no insult from it as he understands where its from
+- Redaan and Tarlo eat it fine
+- Gilbert and Feinren think its fine for a second, but then feel wriggling in stomach and throw up 
+- Gilbert hears flurry of insults from Gabriel 'that was a delicacy when i was alive', gilbert questions if he has done so after fighting a dragon
+- Jeff puts hand on Feinrens back
+- Man starts to break out laughing 'should of realised people not so accustomed to our cuisines find it difficult to stomach'
+- Gilbert uses torso of the spiral to eat the cheese
+- Man asks gilbert what religion he follows, was worried he was from the flesh
+- Feinren takes another bite of the cheese, deals with it much better this time
+- Man says it was rude of him not to introduce himself, in our community doesnt really have names, more identified by what we host, unique by how and what we host
+- But tells us he believes the term for himself in our language would be Chieftan's son
+- talks about naming for a bit more
+- asks our names, Jeff squeaks out his, feels uncomfortable, cant hear name, Feinren explains his name and circumstances
+- Tarlo asks about animals that host, asks about communication with animals, if able to communicate on deeper level than the outisders
+- certain animals used to cultivate and host colonies, might use animal to host colony temporarily when person hosting them dies, or cultivate for food to give flavour
+- animals which do this are respected for their sacrifice
+- feinren asks how community has grown, until recently group has been limiting growth, until recently the elves havent been the most understanding of us, wouldnt stop and listen and would try to hunt us, but this danger has reduced
+- asks if anything caused this reduction, he believes naturally over time and as they have understood us more, but not sure what happened to stop it. Promise to put in good word for the elves
+- Cheiftan son offers us his house as our own within bounds of respect, only currently have one room which isnt being used, gestures to us to follow him, flicks hand back, bug leaves hand hole, catches in another body hole
+- 
