@@ -48,7 +48,7 @@
 - Rahkoriin stabilises and wakes up
 - Dragon breathes lightning again, misses everyone this time
 - 'I will find you, before it flaps its wings and seems to fly away'
-- Gilbert uses head transformation to see if the drgon is actually flying away, it is, just firing it lightning out of anger, before it curls up and dives into the ocean
+- Gilbert uses head transformation to see if the dragon is actually flying away, it is, just firing it lightning out of anger, before it curls up and dives into the ocean
 - Start looking for rest of party
 - After a while find area where the rest of the party crashed, and see footprint walking away, six different footprints walking in and then walking away from the circle
 - Find footprints and follow them
@@ -116,4 +116,4 @@
 - feinren asks how community has grown, until recently group has been limiting growth, until recently the elves havent been the most understanding of us, wouldnt stop and listen and would try to hunt us, but this danger has reduced
 - asks if anything caused this reduction, he believes naturally over time and as they have understood us more, but not sure what happened to stop it. Promise to put in good word for the elves
 - Cheiftan son offers us his house as our own within bounds of respect, only currently have one room which isnt being used, gestures to us to follow him, flicks hand back, bug leaves hand hole, catches in another body hole
-- 
+- Guides us into one small room with plan and simple mattress, tells feinren not to cast tiny hut when he asks as its better to follow current agreement
