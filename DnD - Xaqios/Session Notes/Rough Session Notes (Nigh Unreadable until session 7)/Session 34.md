@@ -1,0 +1,105 @@
+
+
+- Go to sleep, except for Gilbert who is measuring walls - keeps getting values cms off, sometimes a little longer or a little shorter
+- Gilbert hears commotion outside, pauses and keeps ear out for it
+- after 10 minutes all wake up to bell ringing
+- Feinren peers out small window, sees all people gathering in town square, seems to be panicked, hear word or two, hear weird vibration in the air as well, tone buzzing, notice Chieftans son is out there, everyone is veyr concerned
+- about midday
+- as we all step out, we are hit by constant sound of talking and panic
+- scan the skies, dont see anything  - are under foilage, but there is a break in it for the town center where light can shine through , dont see any dragon, maybe see hint of smoke
+- ask chieftans son what is going - spotted an elf raiding party near us, closest found ever to us, scouts think they are looking for dragon or sign of dragon - tells us to get inside before crowd sees us, gilbert suggests using us as distraction to guide scouting party away
+- Chieftans son says we will discuss this, tells us to go to house while they discuss this
+- see in crowd two very mixed feelings about us, gilbert gives big thumbs up 
+- as meeting goes on, notice chieftans son is persuading more and more people over, convince more people who had objections beforehand, at one point everyone in the crowd turns around to look at us 
+- Redaan looking at insects going in and out of holes feels unwell looking at group
+- After little bit of time, Chieftans son walks up towards us and gestures us to walk out, if you could all please stand in a circle over there, and gestures to point in opening, theres just one thing we all had to agree on before you leave
+- after we all stand over there, older woman in long cloak, dont see much of her skin but see base of face - unusual, brings scroll out, unravels and begins to read it - charisma saving throw, all above 15 succeed, tarlo and gilbert fail, become aware we are in zone of truth, chieftans son is under zone of truth as well
+- Chieftans son only asks tarlo and Gilbert as he knows who is under effect of zone of truth
+	- Pulls piece of paper out of his pocket, and asks gilbert and tarlo - repeat the statement - 'i will not in any way shape or form, harm your people, or tell anyone where your village is' - gilbert suggests alterations to not knowingly, says statement using knowingly and to all my best ability
+	- Tarlo says the same and adds, you are all really pleasant people and id hate for anything to happen
+- Chieftans son seems satisifies,
+- Comes up to us, says he will have some people guide us to where the elves were last seen, elves were attempting to draw out dragon by burning things, attempting to drive out where dragon could be hiding
+- Dwarf comes up, has wild cat next to him about same height, both are about one Tarlo tall, both covered in holes, dwarf seems to have bees or wasps, same as cat
+- Chief tan points to dwarf and says this is and makes incomprehensible sound, starts to apologise, but then feinren uses minor illusion to say hi incomprehensible sound, stuns both of them and Redaan uses comprehend languages - derives literal meaning of bee cat talker
+- In response both look very confused, chieftans son looks very excited as think feinren has understood language and connection to God, Feinren apologises and says he was just replication sound through illusion
+- Bee cat talker gets on cat, says follow me and rides along
+- Tarlo rubs dirt on her face, - says want to look like we have been running around for a few days, dont want elves to be suspicious
+- Tarlo and Rahkoriin race along with cat dwarf, Redaan and Gilbert are struggling, can still see them but falling behind and running out of breath, Feinren is very puffed, but is ahead of Redaan and Gilbert 
+- After a while of running, dwarf suddenly stops, and can smell smoke in the air, turns around and says i will go no further, follow smell of smoke and signs of rampage, do not lead them to us or i will find you and kill you 
+- Feinren casts invisibility after asking dwarf so they can get back safely
+- Tarlo thanks the dwarf for 'everything your people have done for us'
+- hear light sounds of dwarf and cat running away
+- follow direction of smoke, everyone except feinren is partly blinded by the smoke, feinren begins to hear sounds of horse riding and elvish shouts, communicates this to the group
+- upon this Gilbert can hear the elves, and can hear their accent - immediately can tell that they are wood elves, Gilbert is aware as a high elf they are considered less then him, are sort of rednecks, are a bit more rash and quick to violence, Gilbert considers them to be less wise than high elves
+- Gilbert hear them talking about dragon sighting, they dont really believe dragon was seen, they are just being pricks and having fun burning the trees
+- Gilbert calls out, - we are over here - dragons gone - you can cease the burnings, hear chatter stop and hooves charging towards our location, in matter of seconds five elves on horses charge at us, and circle us in two rings, running in different directions
+- one of elves diverts out of formation, draws a long sword, and says - pointing sword at group - what is your name and what is your purpose
+- Gilbert says his name and explains we just succeeded in running away from dragon - interrupted by Redaan yelling help, help
+- Tarlo introduces herself and explain we escaped dragon and pirates
+- Feinren - goal is not dying, elf smiles and says 'let see if we can keep up the streak'
+- Rahkoriin introduces himself
+- Redaan says we have been running for days, rest of party explains he is histerical
+- Asked our purpose and how we got here
+- Gilbert explain we were trying to get to Vasto, boarded ship with Shari, intended to go to Vasto after stopping at Sola, were captured during this trip, managed to escape ship and were pursued by dragon, and explains dragon dove down into ocean
+- after questioned say shari die and we brought her body, believed it'd be appropriate to bury her with her people
+- Elf looks at Jeff, Gilbert says he was on trip, elf points sword at him, so you're saying he has answers about the dragon, Feinren steps inbetween sword and Jeff, we would know more on any questions than he would
+- Elf isnt swayed, but respects what was said, starts questioning group
+- Raises hand and other elves stop and circle inwards, speaks in elvish and says, tie them up, we will take them back and see what answers they can give us, two elves come out and tie us up, willingly do so, hands get tied together in a chain, that rope is tied to loop on saddle
+- Redaan and Gilbert hear some elvish gossip, large amount of ride is spent is silence though, one who spoke to us in clearly one in charge, and seems to be much more easily annoyed
+
+- side note - dealer sent shari to guide to elves, but other elves were roughly aware what was happening - what we gathered from coversation
+
+- approach city, struck by its beauty, is beautiful and green, as we walk out of edge of forest, walls appear to be made out of live wood, tree that has been shaped into giant wall, see foilage of green rising over wall
+- elves shout something over wall - essentially we are back with prisoners, which gilbert questions only to be answered by mean look
+- hear vague singing and tree wall grows gap in this, walk in and see it is incredibly beautiful, lush and green, buildings made into and around trees, seem to have used same sort of magic as walls 
+- arent many elves around that we can see, taken to what seems to be biggest building in city, giant magnificent tower, took 30 minutes to get from gate to center, everyone except captain leaves, seems he is the only one with clearance to enter tower
+- knocks on door, door opens, approach person sitting at circular desk, with an elf behind it, locked in full circle desk, omnidirectional
+- captain says in elvish - have prisoners who have info about dragon
+- desk elf rummages around before handing captain slip of paper
+- captain goes over to notch in wall, he pulls us all into this notch, and begins to read what is on the piece of paper, tree begins to grow from point we are standing on, go up about four floor s and are pulled out
+- told we will be interogated by head of council
+- gilbert talks back a bit
+- if you are hostile, we have means to make you not hostile
+- rephrases interrogate to question
+- if they determine you are who you are telling us you are and telling you the truth, you can help us as allies, if not you will be less help as prisoners
+- told we have trespassed on their land even though we are running from dragon
+- Redaan talks and says elf to elf
+- Captain steps forward, is significantly taller, 'you are not an elf, you have dirty blood'
+- turns around and pulls us to big wooden wall, does slightly different knock, wall opens up, on other side is elvish woman hunched over papers at desk, wearing glasses, dont think they are actual glasses and that she just wears them for the look and atmosphere
+- Looks up at as all ' oh lovely guests' and beckons us to come in, captains demeanour changes and is much more friendly, and explain we were found in the forest and yada, elf woman says thank you so much, tells him he can leave, Rahkoriin whispers wanker under breath, captain turns and shoots him dirty look before leaving
+- elf seems incredibly nice
+- after he leaves - you must all be so very hungry, she rummages through desk cabinet and grabs bunch of loaves of bread, more pastry like - croissant like and what not
+- Redaan senses she is genuinely nice person, but seems to have ulterior motive, has goal out of conversation
+- cuts our ropes
+- lady offers pastry to Jeff, looks cautious but accepts when Feinren hands it to him, everyone but Rahkoriin eats bread, is delicious, sweet, and puffy
+- Gilbert recognises pastry
+- Redaan asks the woman how she fits into all this with the city
+- My name is Marie, I am the head of the council, and this city is Luas
+- Redaan knows the city largely follows the vast
+- Council is in charge of this city, we are democratically elected, not like other cities, but looks at Gilbert and says she means no offence
+- Gilbert advocates for one leader
+- Feinren asks what she thinks of royal family governing
+- Thinks they are good, but has lapsed recently in who they are letting into their lands in last two or three decades
+- Anyway - back to redaan, essentially as the head of the council, i am just hear to decide you are not spies sent to inflitrate, and are instead victims or allies, asks us who we are and what our story is
+- lady says its lovely to meet another follower of the vast, Redaan very stealthily peaks at map and says its great to see how the vast is worshipped in Luas
+- lady is very happy, connect more to vastness of ecosystem
+- Tarlo introduces herself, says she has travelled with rest of group and is trying to deal with the puppetless string
+- Gilbert elaborates that we have business in Vasto, been sent over to help as there has been rumours of influence over there, sent by king in Zarath
+- Redaan says we are tolerant to everyone
+- lady says she visited Zarath when she was only a few hundred years old, was only a tiny thing there
+- doesnt know what has happened in Zarath, have been bit reclusive, havent contacted sister cities in a while, say high elves they have been interacting with and envoys have been snobby so bit difficult to communicate with
+- Redaan introduces himself as half elf, lady remembers half elf envoy old king used to send but forgotten their name
+- Gilbert explains what has happened, met with Redaan in sola, planned to take boats to Laaja, intercepted on way, ambushed by pirates controlling krakens, shows kraken beak which Gilbert gives her and she examines
+- Killed one kraken, another latched onto our ship, captured and fought to fight, won by the rules, but they renegged on that, captain killed Shari, took Jeff with us and escaped ship, the captain of which is the dragon, flew to forest, dragon chased us, hit Rahkoriin, hiding after dragon couldnt find us, dragon flew away and dove into ocean, saw smoke and followed it and met elves
+- Lady questions Gilbert on fire, asks if they were burning down the forest 
+- Mention we were trying to get to Vasto, say they are more than happy to host us for the night, in exchange for a little more information on captain and krakens
+- recently in waters surrounding us numbers of missing ships has increased dramatically
+- Feinren says there are at least 3 surviving krakens, claimed to be delivered by God
+- Lady thinks about brother who died to kraken, then suddenly brightens up again
+- Feinren explains bronze dragon, and how it appeared as human
+- explain there is at least one more dragon with one that attacked Zarath, and how it was set on fire by dragon, and what happened with king
+- send over scribe tomorrow, we will begin forming commitee which will likely be formed in a month or so, then we can decide what to do with Vasto 
+- party discusses time frame and Gilbert continues to denounce democracy
+- gilbert talks about document forms
+- Marie says its important for people to be accurately represented, admit system isnt perfect, but it is the system we have built and cultivated
+- 
