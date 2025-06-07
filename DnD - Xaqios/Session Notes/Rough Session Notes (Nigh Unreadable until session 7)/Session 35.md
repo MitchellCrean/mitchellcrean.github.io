@@ -1,0 +1,63 @@
+- Wrap up conversation in the castle
+- Lady pulls out scroll, reads it and then puts it away, few minutes later knock on door and after Marie says a few words, the solid wood parts, and an elf enters
+- Elf with long straight black hair - almost reaches heels, denim shorts that end at knees and denim vest enters, elf is short, has entire drumset on back
+- Marie is still very nice to elf even though she is clearly different to basically all other elves in city, asks elf to guide us around city and show us our rooms
+- 'Im kevin the racist bard
+- Im a terrible tour guide, since birth ive jsut been obsessed with drums, i know nothing about city'
+- guides us to our rooms
+- Taken to chambers meant for servants of political representatives
+- Goes to notch elevator, Kevin sings and plays drums  very well, platform sinks down, goes below entry level ground floor, we are essentially staying in the basement
+- About seven bunkbeds against wall and nothing else, quite plain, and clearly lower quality bunkbeds
+- Redaan complains about quality of bunkbeds after we "slayed" the dragon
+- Feinren immediately goes to one of four bunkbeds right across from him, sets stuff on ground and sits on bed
+- Rahkoriin grabs bed on side
+- Redaan grabs middle bed on wall across, climbs up and then notices weird humming vibrating, in gap between bunkbeds teeth appear and begin to close in on Redaans leg, hands are stuck to top as bed tries to bite at Redaans leg, misses spectacularly
+- Gilbert hits it with guiding bolt, 27 dmg, hair becomes fracticilic, eyes become deep purple
+- mimic tries to attack redaan again, misses, redaan escapes
+- Feinren hits mimic for 27 dmg, Tarlo does finishing blow
+- Gilbert plucks teeth from mimic corpse
+- Feinren pokes rest of bunkbeds with dagger, no more bunkbeds
+- talk about reimbursement and recompense
+- redaan and kevin have romantic talk?? you can play my base drum anytime you want
+- Jeff starts reading book, doesnt turn page
+- All head off to pub, Jeff looks up at Feinren and asks what pub is
+- Redaan says he'll love it
+
+- Go to building knock on door, wall parts, very busy, go to the one free booth, after minute tall male elf, server, walks over and asks how they can help us, Redaan says drinks on me, offers speciality beer, guinness, brewed over last 3 centuries, ready to be served now
+- asks for juice for jeff, has none, jeff asks for guiness, get him smaller amount
+- Rahkoriin asks about meat
+- notice lot of tables that seems very inquisitive, and one table with group of elves that look and talk about us very maliciously, large number of pints at table
+- Guinesses' come out, Jeff is mostly foam, pretends to like it as Feinren likes it, others notice that he doesn't really like, Tarlo offers ot buy him another drink and after some convincing he accepts, gets sweeter drink for him, says he really likes raspberries
+- Giant plate of meat comes out for Rahkoriin, obviously supposed to be share plate
+
+- One of elves from hostile table has come over, has two rapiers, one on each side, and an axe on his back, downing a drink, and slamming the empty cup on his table
+- 'why dont all you foriegners get the fuck out of my city', asks Kevin why he is hear with these outsiders
+- Kevin like asthetic of racism but not actual racism
+- Redaan tries to convince him to leave, almost does, but stops once he looks back at table
+- five people at table including one at our table
+- Gilbert charms all of them except the most scrawning, tells dude near us scrawny dude was talking shit about him, scrawny dude is John
+- Dude walks back over and punches John in nose, fight breaks out at table
+- server brings over drink for jeff, water, guiness and raspberries smashed into it, looks disgusting to us but jeff clearly loves it
+- Gilbert uses Thaumaturgy to egg fight on, one of the guys accidentally hits someone else, full on bar fight breaks out
+- Kevin dips
+- Someone gets knocked into our table, strikes Gilbert, uses arm of spiral to hit back
+- Redaan antagonises more people
+- Patron jumps over bar, yells at everyone to stop, they don't, feinren looks at Redaan and Gilbert, apologises for ruining their fun, and casts hypnotic pattern, half crowd becomes memorised and stops fighting, including Barkeep, shake awake party members and barkeep, who walks over to guy who started it, and hits him so hard he flies across the room and crashes into the wall, does it to another guy who attempts to hit him
+- keeps doing this until everyone stops, yells at everyone to keep drinking, and tosses out guys who started it, did it to five or so
+- John ended up in corner of booth with face smashed up
+- Gilbert complements barkeep, says he fought in great war
+- Redaan attempts to get discount, does not get one
+- Feinren say he cast the spell
+- Barkeep reminisces about his party and the spellcasters
+- brings over cheque, custom was 1gp, everything else was 5gp, rahkoriins meal was 5gp
+- Redaan attempts to pretend to go to bathroom, gilbert brings him back, Barkeep agrees to take Feinrens drink on the house
+- Feinren asks his name, names Bart, but you can call me Bartholomew
+- Head back to tower, Feinren asks for peice of paper, which Gilbert reads because elvish, just down written in several different ways
+
+- Gilbert measures walls again, slightly smaller
+- Measures again, slightly larger
+- Gilbert wanders around and finds general store, tries to buy 3 rulers
+- six gold, Gilbert argues, uses charm person, fails
+- Trades leather armour for rulers, flips him off, dimension doors out
+- Gilbert measures for three hours until he gets consistent result, when everyone else wakes up
+- 
