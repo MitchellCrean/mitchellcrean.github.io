@@ -1,0 +1,67 @@
+
+- Walking along path, after while redaan and gilbert realise where we are walking makes no sense, been taking constant right turns, this genuinely does not make sense
+- Redaan and gilbert realise we are going the wrong way
+- Gabriel is constantly laughing in gilberts head, completely mocking him
+- Feinren checks Shari's notebook for details on the area, gets right page number in head - pact of eye, see written there it is an area controlled by power of the spiral, will mess with the mind, there are no solutions. Asks gilbert if he has any idea, jumping backwards seems to work
+- party follows Gilbert
+- after 30 minutes of this see more of what we expected, more ruins, see great crumbling towers that seem on edge of collapse, hasnt been used in a century, hasnt been properly lived in for far longer
+- buildings all have these symbols on them, Feinren inspects one, painted with blood and carved into stone, as trying to see the shape it just keeps going, not quite a spiral but its line doesn't connect back, Feinren is completely paralyzed, in my mind I am in deep state of terror
+- Tarlo also inspect symbol, look at it and it hurts a lot, takes 4 points of psychic damage
+- Gilbert covers Feinrens eyes, no longer paralyzed but has fear spell, runs away, caught by Gilbert with tentacle arm, gets slapped out of spell
+- standing in the middle of crumbling city
+- Feinren checks Shari's journal, finds nothing, contempates burning book but voice in head holds him back from it
+- Redaan notices one side of area is a lot more ruined than the rest of it, looks like something was there destroying that side, Gilbert gets vague idea thats the direction we should go
+- Gives basic spiel on dealing with spiral, dont trust left hand maze rule, trust the main voice in your head, 
+- As we are walking through, Redaan hears voices calling out to him from different spots, saying come over here please - in desperation, voices are very quick so unsure if its in his head or actually real. Gilbert - its starting
+- talk about setting up buddy, Jeff grabs onto feinrens shirt arm, Feinren jumps a bit
+- Continue to walk through, all see one specific ruined building, looks like it used to be giant stone tower held together with vines, every inch of stone covered with vines, top of tower had at some points been knocked off to side, there is an empty doorway still standing, and feel it calling to us
+- Send gilbert forward first ("send the scary man through first"), gil - dont you want to pursue the arcane
+- Gilbert inspects doorframe, seems normal, at some points puts his hand around doorframe, where there should be empty space there is a stone wall, Gilbert steps through, it is dark but is able to see, looks up and sees he is in enclosed tunnel, and behind him (where he entered is more enclosed tunnel)
+- Steps back out and is back outside, everyone outside saw Gilbert disappear as he entered and then reappear when he stepped back out
+- All enter, Feinren sprinkles some sand where we entered
+- Jeff is clearly frightened, Feinren casts conjure flames to light the way and lights Rahkoriins torch, tunnel feels quite restricting
+- In far off distance, Rahkoriin, Tarlo and Feinren all hear crying for help, frantic terrified voice, throat sounds hoarse. Buddy system check, Gilbert and Redaan dont, but we say it is distant
+- Tunnel takes sharp right  u- turn and then reaches t intersection, doesnt lower or rise but also doesnt intersect as it should of. Feinren sprinkles more sand and we take a right
+- We can now all hear screams, and see mass of red and purple attatched to wall, with one person in it and one person on their knees crying, Gilbert recognises both of these figures, one is an old fellow research assistant, and his old supervisor who was with him when he opened the book, Gilbert does not share this information, pulls up hood to hide his face
+- Tarlo grabs some rope and we approach them, say hello and there is no response, supervisor is clawing at red and purple material, it moves but his fingers basically pass through it
+- Tarlo throws rope and it hits the mass and sticks, old guy still doesnt respond, taps him with side of sword, he turns around, grabs sword and yells at us to go away, notice fingers bleeding and the red of the purple mass is not natural red
+- What happened - there was so much (cant get full sentences out), Tarlo tries to pull sword away, but his grip is too strong 
+- Feinren looks at person attatched to wall, his eyes are open but he isn't there (not conciously)
+- Feinren talks to old man for a while trying to convince him we are real, asks if there is anything we can do that would make him think we are real, laughs at this
+- Gilbert says we should leave, man suddenly looks at him
+- We all hear a laugh that gilbert recognises, starts in his head and then leaves, hear laugh from behind us, turn around to see very tall elf
+- 'finally home', begins to laugh unsettingly, gilbert recognses as Gabriel, gabriel walks forward, puts arm around Gilbert, why are you ashamed of such brilliant work, pulls hood off
+- Old mans face turns to expression of pure rage, and lunges at Gilbert, misses, falls forward and crashes into opposing wall, and stops and stares at him 
+- Gabriel says finally, the annoying group ive had to put up with for so long
+- Gabriel has smooth clear skin, sharp cut facial features, well toned 
+- Redaan does a handsome check
+- Feinren looks into Gabriels eyes, feels compulsion to eat inorganic natural material, dirt, sand, stone, wood
+- Gabriel says he is here to help, guide us through as he wants something to be destroyed, I laid out this entire plan, well almost entire, this one helped as well, laid out architecture, which he is really good
+- Look at these two, and they weren't even trying
+- Feinren dispels magic 
+- Redaan says something about not wanting to be here Thats a bad attitude, and i dont like bad attitude, Gabriel stares at him furiously, and Redaan feels compulsion to trace tracks in the wall, but manages to fight it off
+- Talk about construct in this dungeon, imagine it will be influenced by the dungeon, so while constructed by users of the eye more spirally
+- 'Im fine watching you all fall forever' - 'isnt that someone elses domain' - 'thats the problem'
+- Turns right down coridoor that wasn't there 
+- Pulls gilbert forward and place arm around him, Gabriel is just the height of the tunnel, head almost brushes against the top
+- I will never understand why you waste your time with these idiots, why not lose them, or make them lose themselves - feinren hears this
+- why do you stay with them - short term goals - i respect that
+- look at what you did to those two, and you didn't even mean to, talk about using book
+- go up to four splitting pathways, Gabriel does innie minnie moe, then shrugs and picks randomly
+- talk about housing, Gilbert goes on rant, Feinren says think hes lost it, Gabriel appears behind and drapes arms around shoulders, talk about housing, safety, death of family and its painfulness
+- Gabriel pulls lever and we all fall, Gilbert dimension doors down (falls through actual door) and Redaan casts feather fall, Feinren glances down at Jeff and thanks Redaan
+- After some more twisting and turning we reach a door, now behind this door is what we need to fight, gabriel asks if we are ready and then flings door open anyway, and it is just the sky
+- 'where the fuck did it go'
+- Gilbert walks through, feels like falling(with stomach turning and everything) but then realise standing normally, we all walk through and feel this except for Redaan, who it feels a bit more natural for
+- Look around, door still open and Gabriel is smiling with a smile that stretches beyond his face and waving
+- Feinren casts detect magic as we wait around, senses magic from one point and sees and aura of illusion spell coming from one point, the fuzzy aura seems to match the shape of a giant 3 headed dog
+- Feinren warns everyone and casts dispel magic
+- Taken the shape of large 3 headed dog, has fire running over the edges and seems of it, but looks to be made of clouds
+- it seems to be locked somehow, and not it is dispelled giant wings unfurl from its back
+- Feinren casts mirror image and the giant dog takes off, glowing from inside its chest is a deep flickering green, it then flies straight down and targets us, hitting Gilbert for 20dmg, Tarlo for 15dmg and Rahkoriin for 17dmg
+- Feinren asks if Jeff is ready for more owlbear shenanigans, which he very much is, and then transforms him into  Giant ape before moving him away
+- Gilbert moves away and hits it with and eldtrich blast
+- Rahkoriin hits it
+- Redaan throws daggers and one hits
+
+End session here
