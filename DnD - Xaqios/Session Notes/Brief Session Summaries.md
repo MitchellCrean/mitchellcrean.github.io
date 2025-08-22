@@ -297,3 +297,7 @@ sassty
 - After being asked, Tarlo admits that Shari told her about an ability they have where they can be guaranteed to kill someone but at great cost. The Dealer is annoyed by this and says that at Tarlo's current power this ability is too dangerous and uncontrollable to use, further admitting that he lied to Shari about the ability, and that it trades your life for someone elses, and that why Shari can't be revived as she used it when the captain tried to kill her.
 - The ability essentially eliminates the soul, and while someone like the Dealer can trade one soul for another, at lower levels of power such as Shari it trades your own soul for another, and if Shari hadn't done this she would still be alive, as when you have your soul you don't really die, you just keep on living
 - Then the Dealer physically flinches and vanishes, leaving Tarlo alone, who tells Gilbert about leaving Shari's corpse in the forest and that they apparently done die often when as connected to the End as the dealer and Shari
+
+
+## Session 37 - Jeff discovers the joys of pure unadulterated violence
+- 
