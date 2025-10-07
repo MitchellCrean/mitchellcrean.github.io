@@ -1,0 +1,118 @@
+- interrogation room
+- elf still looking docile
+- says not doppleganger, seems tranquilised, not putting any thought behind answers
+- any contact or affiliation with gishin, puppetless strings, flesh or the stranger, yeah what religion do you follow king - vast - far out king
+- yep, that passes our checks, calls in guard, lifts prisoner and walks him out, bring in the next and dont sedate them
+- guards head does really sharp swivel, head turns around more than it should be able to, 180
+- more well put together elf comes in
+- eyes are studying us
+- gilbert uses head of spiral, pale elf pales further
+- why are you guys here
+- sent by royalty
+- not a lot of respect for royalty these days given the bastards they sent here
+- bastards here for two weeks, 
+- they think some people in the town are traitors to the royal family - disagree? - fuck if i know
+- do you know why youve been under suspicion
+- may have been a little vocal about the royal family's tax codes, think wood elves have a good system, and they did deem my brother to be a traitor
+- anyone who you think might not have your towns best interests at heart - people i disliked but most slaughtered in the rebellion 
+- came in started knocking down doors, if said wrong answers they took you
+- we just thought the peasants would be better at uprising
+- im quite good at convincing others to do stuff, all others who got blamed were killed
+- any idea what your brother said - no
+- what prompted initial interrogation, not clear, just said there were traitors in the village
+- used to be rich - lost it to business partner - was he a duck at some point by any chance, someone of avian nature? - i think he pissed someone off and got turned into a goose (episode 11 reference)
+- did any guards die in the rebellion - dont think sp, heard some crackpot rumours that if you removed the masks they werent human underneath, theyre black shriveled skin, insect like mouth
+- is there anywhere else you can put me - not really
+- call guard to put this prisoner away and grab another
+- guard pulls in next elf
+- calm, centred, cautious
+- gilbert uses head of spiral again
+- scared but still very calculated
+- how can i help you
+- gilbert frothing at mouth and in heated discussion with gabriel
+- i was part of the organising group, wasn't big fan of their methods
+- come from fairly wealthy family, across human, elf and dwarven kingdoms
+- previous generations smuggling people
+- staff smuggling notes through some of our shipments
+- lying about not knowing what was going on with the notes 
+- business tied to smuggling
+- its not quite my fault if a dirty little peasant decided to go against the crown, I shouldn,t be held to same expectations as them
+- i just have a nagging feeling about how you are answering some of our questions that makes me feel more comfortable with our friend Gilbert questioning you, we are going to go for a walk
+- back and forth
+- i actually do have one thing more to tell you
+- my financial advisor may or may not have told me that i could be slipped a few thousand gold pieces a year if i just dont inspect what im moving
+- where is this financial advisor - he was the second person they beheaded
+- where were the shipments going to and from
+- going largely from royal capital to maybe a little past the dwarvish kingdom (heretic territory)
+- were responsible from large number of shipments from zarath to same place
+- how long were you doing this, started decade ago, small things, not every shipment, took off this past year, whole shipments. Could we get a name for this financial advisor 
+- uhh yeah so, his name was Dara Gando, hired him a century ago (all gilberts mouths smile)
+- was he a central member of gando family
+- one of the younger more inexperienced members of the family, his family thought it was best for him to go out on his own, but did seem to be more chummy when we started our arrangement, i was curiois on where he was getting his money
+- gilbert uses disguise self to transform into her, she freaks out and points, Feinren says shes pointing to an empty space (1 psychic damage), Gilbert - have you ever considered joining the spiral, guard walks in, takes her and nods
+
+- tall elvish woman in tattered clothes walks in, looks terrified
+- name is Julah
+- talks to Tarlo
+- had a cousin who went through Granth, nice building but too many eyes
+- we have a few questions 
+- do you have any idea why you've been detained
+- where are you employed at - she's also arrested here we just called her miss just helped with stuff around the grounds when they were bringing in shipments
+- remember anything about shipments that might of stood out, not really, told not to look at them, just bring them, take the straps off, guys in weird uniforms would come in and take the boxes, had a really odd symbol on their uniforms, never seen it before, face that was a mask but there were two sides of it, one was smiling and one was frowning
+- have you seen that symbol anywhere else, don't think so, not in town, weren't meant to look in the boxes but i had a look at a few, some would have a carving of a symbol in the box, two lines cut for eyes and a smile into a frown
+- has younger brother called john, think he's still ok 
+- if your boss is found guilty do you know what will happen
+- might find everyone working under her guilty, if they don't do that and just kill her we will have no way of supporting ourselves
+- did you have any interactions with her financial advisor Dara Gando
+- wasnt aware he was financial advisor, thought he was inspections, pointing out boxes to take
+- any other faces that seemed to be closely affiliated with these people
+- not really, but we used to be responsible for more things but then more new people came to deal with it. Got heavier boxes recently
+- two guys picking up big box, one of them stumbled and heard a grunt, but didn't seem to come from one of the guys, this was a shipment coming in from the mountains past dwarvish kingdom. We have a little settlement just on the otherside of the mountains, thats where we get our stones and minerals, and that shipment came from there
+- thats all i can remember
+- did you have any involvement in the rebellion - tried to tell them it was a bad idea, but i guess they thought we had the number, but they didnt seem lawful, didnt seem natural, didnt seem right
+- hear stories about them being used before, only ocme more recently, past decade. Story is they are  a group of mercenaries that came out of nowhere, royal family employed them, what they've done here is in line with what i've heard, less mass murder, dont think other places tried a rebellion
+- brother ducked out the door
+- either shes the worlds best actress or she is telling the truth
+
+- bring first guy back in who has a scottish accent
+- my name is Mark Selvick my occupation is unemployed
+- i did work as a low level mercenary, helping retrieve items from people, convince people who owed money to give it
+- technically last job i did was for royal family, didn't go so well
+- Elaborate
+- do i have to
+- head of the spiral
+- gets scared, im just a little bit more scared of the other guy
+- royal family death will be more painful, not sure how much i can say before sshhhp (makes hand motion of flames?)
+- scare him again
+- was working with royal family with another member of family, maybe previous royalty and helped shuffle them along (pretty recent transitions, king and queen shuffled off and suddenly new royal family, just under two decades ago)
+- starts smoking
+- just information they made this deal with someone
+- people weren't happy with loose strings allegedly, and i came here to hide
+- i think im here right now as i may or may not of really hurt one of them, took of their mask and they had this weird face, and then the rest of them were on me
+- detect magic, Feinren sees subtle faint aura, from arcana check, theres a spell specific to the eye, can mark them with a trigger for a specific thing to set it off
+-  do you know why the guards started interrogating this village, guy just said treason, you can guess why i decided to lay low
+- Tarlo shows symbol explained before, nods head on seeing symbol, anyone else have any burning questions, around time of alleged activities
+- hasn't encountered someone named Dara Gando
+- send him off
+
+- discussing king and queen, treason 
+- knock on door, commander standing there with a very wide smile
+- you look joyful
+- i just recieved the most interesting letter, i just want to savour this, strolls into centre of room, holding his broadsword
+- you see the letter i recieved from the queen today was of beautiful today, it was of fire, damnation and death, yours
+- feinren casts hold person, lasts for 18 seconds
+
+- COMBAT 
+
+- gilbert 18 dmg, farsteps out of room and sees guard whose hand is held on a lever
+- Feinren casts hold person, fails
+- guard pulls lever, underground shakes, see cracks in wall and ceiling, commander staring at the door, clearly wants to get out, everything around us crumbles
+
+
+## Session 42
+- Interrogate some basic bitches
+- Evil woman ferried goods for the Ginshin turning blind eye
+- Scottish not Scottish dude helped royalty off the previous royalty, remembers seeing symbol of the stranger, burns when he tries to tell us more
+- Their majesties send us a lovely letter ordering the commander to kill us
+
+-

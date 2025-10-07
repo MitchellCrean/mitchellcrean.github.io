@@ -1,0 +1,88 @@
+- doors of carriage opened by two armed guards  
+- cleo jumps up and walks to soldiers, not intimidated, we follow
+- burning corpses on breath
+- Tarlo asks cleo what happened, checking who and who isn't traitors, clearly they failed
+- hear scuttling of figures hiding as we move along, guards are quiet tall and a little bit cruel and indifferent
+- one guard pushing over and kicking into dust a younger looking elf
+- keep moving on
+- get into town centre building, two guards infront of door wearing masks and have blood red eyes
+- tom gets advantage on perception
+- Rahkoriin notices intricate design on armour, is the symbol of the hunt
+- cleo says weve been sent by the king and queen
+- guards dont let through, drop spears lower to cleos body
+- guards escorting us walk up to them, cover mouth with hand, hear a soft whispering sound, guards stand to the side and open up the door
+- seems to be a makeshift building, light shining through cracks
+- man standing with back to us, no helmet, long cape, intricate fragile looking armour, strong but decorative, lot more patterns than others, surrounded by 4 or so guards, all looking at something on table
+- menacingingly slowly turn
+- cleo says we were sent by king and queen, you should of been notified of our arrival
+- leader is human, not elf, deep blood red eyes, scar kinda looks like drawing of tear drop?
+- he smirks (edgelord)
+- presses pressure point on feinren, have back and forth on interrogation
+- he isnt happy we are here
+- in population control we had a few agitated citizens
+- redaan asks what his name  is, you can call me commander
+- group huddle
+- let me take you to our holding cells and i can show you what our general process is
+- tries to push past rahkoriin, shoulder gets thrown back
+- takes us through a bunch of alley ways and sharp turns
+- stairs walk down seem roughly hewn and of lower quality
+- faint smell of blood
+- Feinren gives Jeff a hand
+- Jeff taps on arm to get attention - if anything bad happens turn me into giant ape
+- pretty rough conditions, people in cages, 
+- these cages are our midterm confining, ones at front are for those who have commited crime, or if we've found something suspicious
+- changes from cages to set of hallways, now down towards left and right are our interrogation rooms, would you like to see them, yos
+- solid wooden table, some dints and bangs
+- 3 chairs, one chair on the side against the back, two chairs facing
+- here is where we bring our more cooperative prisoners
+- will take them to other interrogation room if needed 
+- if they admit to their crimes won't interrogate them more
+- we deal specifically with infiltration, mainly looking for shapeshfiters, spies, those with sole goal of bringing down our elvish culture
+- now look, what we specialise in really, is hunting down agents of the stranger, we exist largely to hunt them down and kill them, it is very important work
+- Redaan asks about judicial system, tall one and co (commanders)
+- instructions we have been given is to allow you to assist in our interrogation
+- they very suddenly have not seem to be taken with our methods
+- feinren remembers of the stranger - remember reading that the stranger is one of the gisshin that focuses on the concept of not having your own identity, fluidity of not having identity, free willed - acting out of desire, figures were exceptionally good at deception and disguise, some were able to escape aging, death and one was able to rewrite reality???
+- go to next to interrogation room, feinren waits outside with jeff
+- manacles and chains attached to the wall, stretching torture instruments
+- commander - these are general instruments we've used
+- someone with shapeshifting ability will try to escape the pain by stretching themselves
+- commander gets kick out of us being squeamish
+- attitude reminds Rahkoriin of group he grew up with
+- Commander claps Feinren on back stumbles forward
+- walk down hallway, rising smell of blood
+- up next is where we take those who we have condemned for crimes or make extra sure they aren't traitors
+- Redaan, Jeff and Feinren wait outside, share some rations, Redaan gives Jeff some wine, he tries to pretend he enjoys it but doesnt really, forced smile
+- Rest walk into room, two sections, beheading and hanging
+- we tend to allow the prisoner the honour of deciding which way to end their life - which one is more common - surprisingly beheading
+- at the end of the day the trick with shapeshifters is to not give them chance, ive had them kill and replace my best friends
+- Gilbert inspects the gallows
+- Nicest wine weve ever had
+- Redaan, Jeff and Feinren having charcutterie board
+- Commander walks out, if you guys would like we can take you to where you'll be staying with us
+- as he is walking - a small brief on where we are currently at - have three or four high value suspects, those are who you've been sent to interrogate
+- Town would normally hold 500 individuals
+- ask how many died - had small issue with cooperation and was a small uprising, had to be dealt with - Redaan respectfully disses commander - probably large portion of the town killed
+- village seems scared and beaten down
+- Feinren gives wand of secrets to Jeff
+- Feinren sending spell to Lieutenant - how are you and king alive, king acting kind of weird thinks Gando family is fine without justification
+- - badly injured - orcs left after we drove them off - king is fine - i trust him - he has information
+- Cleo rejoins us, how was the tour, ive been called back to capitol, will be called back when we are done
+- Cleo - we are generally given warnings about this group - sent in when dont really want anyone left alive - king and queen have decided to do that to this village
+- **lopsided rack**
+- Redaan - best for Jeff to be left out of whole interrogation thing
+- Jeff loudly says (because Feinren is covering his ears), guys i can help, dont send me away
+- Feinren casts Leomunds tny hut and goes to sleep
+- in two more times Rahkoriin will have finished book
+
+- woken up to knocking by soldier wearing hunt armour (Rahkoriin has shared this information)
+- dont say anything, nod in direction and start walking
+- reach barracks
+- just the commander, standing at table, sketches of 4 people, next to them information, ah yes lovely, in front of me I have the four people you are here to interrogate
+- ooh lovely drawing - Redaan, did you do this
+- oh you have other people here, i thought it was just you down there
+- no we are a full regiment
+- all four images are elves, two men, two women, individual couples, have information on age, job and so forth
+- what are you wanting us to find out 
+- walk down to interrogation room, Redaan, Gilbert and Feinren notice that as guard is struggling with prisoner, mask is knocked to side, we three see dark twisted black scar tissue, out of mouth, small barbed tongue flicks out to guys neck, guy stops struggling and is subdued. continues dragging him out of the room
+- Elf seems a bit dazed
