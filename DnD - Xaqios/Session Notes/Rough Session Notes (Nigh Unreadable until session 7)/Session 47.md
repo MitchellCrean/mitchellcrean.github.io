@@ -1,0 +1,35 @@
+
+- rahkoriin does 11 dmg to king and then 9dmg
+- stranger passes wisdom saving throw
+- redaan uses fear everyone except king passed fear spell
+- king stands up, looks at rahkoriin and pleads for his life, rahkoriin doesnt speak elvish, gilbert says he is cursing his mother, king casts a spell, lighting explodes from fingers and shocks rahkoriin, throwing him across the room to the door, 20dmg knocked prone, half movement
+- queen fails saving throw
+- double eldritch blast elf king, both hit, 20dmg total, turns into crown, pockets crown
+-  feinren walks up to queen, chromatic orb for fire 35dmg
+- tarlo misses first attack, second attack, third attack does 12dmg 
+- jeff tries to stab queen, fails, runs back out
+
+- doors swing open, 5 soldiers run into room, another creature enters room, very large high elf, heavily armoured, strong weaponry, wearing interesting armour, appears to be sun like, looks like a paladin 
+- rahkoriin uses breath weapon on all 6, 13 dmg, paladin and two others take half, uses bonus action to attack another one
+- stranger shouts kill them all, shouts and jumps through the window, rahkoriin misses attack of opportunity
+- redaan climbs through window after him 
+- gilbert hears please over and over in head from elvish king
+- queen just passes hold person check
+- paladin looks past rahkoriin at tarlo, step away from the queen, tarlo - what are you gonna do about it, deals 20dmg, attacks again for 18dmg, cease this and we will simply arrest you 
+- gilbert saunters in, double eldritch blasts the queen for 21 dmg, then farsteps away after saying try and catch me
+- feinren walks next to rahkoriin and uses burning hands, dealing 10dmg to 4, 5 dmg to one, ignites everything behind them, shrugs pulls out dagger 
+- s1 tries to attack rahkoriin, misses, second attack hits and does 9dmg 
+- s2 and s3 try to shove through, rahkoriin and feinren bounce them back, other two move past 
+- Tarlo gets on guard, can i ask you something, nat 20, paladin nods, are you loyal to your crown or to your country 
+- Jeff cries out ape time, and tries to stab paladin, tries to get away 
+
+- Rahkoriin attacks s1 a few times, looks injured but not dead
+- stranger  turns back, casts something, redaan feels stuck, keeps running 
+- redaan nat 20 saves 
+- king crown continues to beg 
+- queen elf casts spell, jeff and tarlo succeed, everyone else takes 6dmg, now prone, yells kill these traitors 
+- paladin says my loyalty is to the crown of my country, tarlo takes 23dmg, falls unconscious 
+- gilbert eldritch blasts queen, folding in on herself into a circle, condensing down into a scepter
+- feinren uses hold person against paladin, fails 
+- feinren blocks s2, s1 and s3 and run past, rahkoriin misses aoo
+- tarlo suceeds death saving, jeff tries to drag her out the window , paladin misses, jeff tries to stabilise, suceeds

@@ -26,3 +26,15 @@
 - Out of character king is different then we plays remember
 - Redaan and Royalty bicker
 - Sent to town to question "traitors" welcomed into town by pile of burning corpses
+
+## Session 44
+
+- Bargo and Gilbert get betrothed
+- Gilbert wants to become king for definetly humanitarian purposes
+- Bargo asks us to kill the king and queen  and the Gando family
+- Give Bargo a murder allowance of 15 to 40 people a month
+- Ring will kill the wielder if they break the deal
+- Arrive in capital hidden, kids saw some fly in on way in
+
+
+## Session 45
